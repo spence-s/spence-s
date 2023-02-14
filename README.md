@@ -1,3 +1,3 @@
-# Spencer
+# Spencer Snyder
 
 :rocket: :rocket: :rocket:
